@@ -14,7 +14,7 @@ Linkedin - www.linkedin.com/in/ketki-neurgaonkar-a27a61101
   
 
 
-# UX Design related Work Experience
+# UX Design Related Work Experience
   UX Designer - *Volunteer* 
     Puget Sound Project Management Institute 
     *March 2020 - August 2020*
