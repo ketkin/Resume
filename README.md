@@ -8,9 +8,9 @@ ketki.neurgaonkar@gmail.com  |  425-553-7570
 Portfolio - https://uxfol.io/ketki.neurgaonkar  
 Linkedin - www.linkedin.com/in/ketki-neurgaonkar-a27a61101
   
-# Introdutcion
+# Introduction
 
-  I’m a UX Designer with an interest in building most effective products (apps/web) for users to live a stress-free life. For the last 1 year, I’ve been working from start to end of designing  few concept apps to make user's life stress-free. My main skills are Design Thinking, User Research, Information Architecture, Sketching, Wireframing, Prototyping, Testing. I work with design tools like Adobe XD and Figma. 
+  I’m a UX Designer with an interest in building most effective products (apps/web) for users to live a stress-free life. For the last 1 year, I’ve been working from start to end of designing  few concept apps to make user's lives stress-free. My main skills are Design Thinking, User Research, Information Architecture, Sketching, Wireframing, Prototyping and Testing. I work with design tools like Adobe XD and Figma. 
   
 
 
